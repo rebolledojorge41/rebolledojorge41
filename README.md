@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rebolledojorge41
+- 👋 Hi, I’m Jorge Rebolledo :)
 - 👀 I’m interested in design and tecg
 - 🌱 I’m currently learning everything about robots and ai
 - 💞️ I’m looking to collaborate on the future and cool things 

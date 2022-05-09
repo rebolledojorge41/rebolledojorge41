@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jorge Rebolledo :)
-- 👀 I’m interested in design and tecg
+- 👀 I’m interested in design and tech
 - 🌱 I’m currently learning everything about robots and ai
 - 💞️ I’m looking to collaborate on the future and cool things 
 - 📫 How to reach me mejorgelatina@gmail.com <- 
